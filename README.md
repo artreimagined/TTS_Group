@@ -17,3 +17,16 @@ Here are some I recommend:
 
 5. Glee
 	Watch at your own risk. 
+
+
+***
+So this is me, Thomas Morf. I think the fact that I am writing this will be logged and documented by 
+GitHub, but just in case, it me.
+
+I love Ru Paul. I have a very specific love/hate relationship with the Walking Dead. I hear him say "Carl"
+in my head sometimes. So that's a thing.
+
+I have been addicted to Ozark! So goooood. But mostly retro video games and procrastinating homework.
+
+Stick with what ya know, ya know?
+***
